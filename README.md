@@ -1,2 +1,0 @@
-# kynarininja
-vitulla_paaha
